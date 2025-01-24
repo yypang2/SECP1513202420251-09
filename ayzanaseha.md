@@ -1,1 +1,3 @@
-🔗 Access my repository [here](https://github.com/ayzanaseha/ayzanaseha.git)
+🔗 Access my profile [here](https://github.com/ayzanaseha)
+🔗 Access my main repository [here](https://github.com/ayzanaseha/ayzanaseha.git)
+🔗 Read my reflection [here](https://github.com/ayzanaseha/Reflection-TIS.git)
