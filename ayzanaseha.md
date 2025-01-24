@@ -1,4 +1,4 @@
-🔗 Access my profile [here!](https://github.com/ayzanaseha)
+🔗 See my e-portfolio [here!](https://github.com/ayzanaseha)
 
 🔗 Access my main repository [here!](https://github.com/ayzanaseha/ayzanaseha.git)
 
